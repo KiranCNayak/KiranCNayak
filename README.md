@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @KiranCNayak
+- 👋 Hi, I’m Kiran
