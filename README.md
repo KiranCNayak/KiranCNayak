@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Kiran
+- Namaskāra 🙏 I’m Kiran C Nayak
